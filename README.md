@@ -1,2 +1,2 @@
 # personal-webpage
-my contacts 
+аніме ноутбук і гроші
